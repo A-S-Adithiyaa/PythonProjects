@@ -6,6 +6,4 @@ You can contact me anytime for any modifications in the codes (which makes it mu
 
 Thanks for visiting!
 
-Author: A S Adthiyaa
-
 e-mail: adithiyaa1112@gmail.com
